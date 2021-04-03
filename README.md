@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pelicanulll
+- 👀 I’m interested in ... gaming, a little bit of coding but i need a lot of help with that :)
+- 🌱 I’m currently learning ... nothing, just studying
+- 📫 How to reach me ... Discord: Pelicanulll#2600
